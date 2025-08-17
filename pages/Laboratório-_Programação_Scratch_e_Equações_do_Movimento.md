@@ -1,0 +1,1 @@
+1.  REDIRECIONAMENTO <a href="Laboratorio:_Programacao_Scratch_e_Equacoes_do_Movimento" class="wikilink" title="Laboratorio: Programacao Scratch e Equacoes do Movimento">Laboratorio: Programacao Scratch e Equacoes do Movimento</a>

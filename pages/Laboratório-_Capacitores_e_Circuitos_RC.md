@@ -1,0 +1,1 @@
+1.  REDIRECIONAMENTO <a href="Laboratorio_M1K_Analog_Devices:_Capacitores_e_Circuitos_RC" class="wikilink" title="Laboratorio M1K Analog Devices: Capacitores e Circuitos RC">Laboratorio M1K Analog Devices: Capacitores e Circuitos RC</a>

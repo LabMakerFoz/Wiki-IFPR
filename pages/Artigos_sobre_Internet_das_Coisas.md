@@ -1,0 +1,1 @@
+1.  REDIRECIONAMENTO <a href="Artigos_sobre_Internet_das_Coisas_e_Padronização" class="wikilink" title="Artigos sobre Internet das Coisas e Padronização">Artigos sobre Internet das Coisas e Padronização</a>
